@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **chinmaydonkar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Arj0Y_O03HPlJ9PL3H6_A26C5IlDdAc6/view?usp=sharing](https://drive.google.com/file/d/1Arj0Y_O03HPlJ9PL3H6_A26C5IlDdAc6/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1RmiiZRpBDlUtp2k3cem9bOfAj3655jgh/view?usp=sharing](https://drive.google.com/file/d/1RmiiZRpBDlUtp2k3cem9bOfAj3655jgh/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
